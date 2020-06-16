@@ -7,6 +7,8 @@ Our mission is to make everyone financially educated by removing the barriers an
 
 **Contact us at -** 
 
+Gmail ==> vyolvepaisa@gmail.com
+
 Instagram ==> http://www.instagram.com/vyolvepaisa
 
 Facebook ==> https://m.facebook.com/Vyolvepaisa/
