@@ -72,8 +72,13 @@ So stop getting scared out of it and just try to get into it, you will love it.�
 
 <br />
 
-13) Ever wondered what happens with your money when you invest in mutual funds, or why stock market is so important.⁣
+13) Ever wondered what happens with your money when you invest in mutual funds, or why stock market is so important!?
 <div align="center"><a href="https://www.instagram.com/vyolvepaisa/"><img src="https://instagram.fhyd2-1.fna.fbcdn.net/v/t51.2885-15/e35/104009624_327361945095807_6432876415594942767_n.jpg?_nc_ht=instagram.fhyd2-1.fna.fbcdn.net&_nc_cat=103&_nc_ohc=56abyYJ_nuIAX-bwZcQ&oh=f80181d9e1c34b8c7a80e1e23e8397d3&oe=5F113D21" height="300" width="400" ></a></div>
+
+<br />
+
+14) Ever wondered who is behind the settlement clearing process in stock market!?⁣⁣
+<div align="center"><a href="https://www.instagram.com/vyolvepaisa/"><img src="https://instagram.fhyd2-1.fna.fbcdn.net/v/t51.2885-15/e35/82079078_631413224387288_8224569391792109158_n.jpg?_nc_ht=instagram.fhyd2-1.fna.fbcdn.net&_nc_cat=108&_nc_ohc=DeTy09oWKwUAX-m-k_C&oh=60cd1dd2c71cb12739393e2c35388b8a&oe=5F13C50E" height="300" width="400" ></a></div>
 
 <br />
 
